@@ -11,7 +11,7 @@ This article will analyze SmartSTP’s regulatory status, trading conditions, us
 
 
 
-![image]()
+![image](https://github.com/Trader-review/SmartSTP-scam-review/blob/f8b5098616bb23e4125ef6eaa8fd31a4927c649f/smartstp%20home%20screen.png)
 
 Is SmartSTP a Scam or a Legitimate Broker?
 --------------------
